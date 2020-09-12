@@ -4,8 +4,8 @@ Hi My name is Annapaula or Anna for short! After gradauting with a Business degr
 
 For Fun
 
-Baking
-Hiking
-Reading
-Concerts
-Binge watching shows :)
+1. Baking
+2. Hiking
+3. Reading
+4. Concerts
+5. Binge watching shows :)
